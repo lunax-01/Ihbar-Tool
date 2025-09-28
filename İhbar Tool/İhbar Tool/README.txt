@@ -1,0 +1,1 @@
+Size Önerim VPN Açıp Kullanın Sorumluluk Kabul Etmiyoruz Bir Olay Olursa Swarlechx Serverına Ait Değildir Sorumluluk Kişiye Aittir İyi Günlerde Kullanınız.
